@@ -20,25 +20,21 @@ Is to integrate my iPad pro 11 inch 2022 into my 2012/13 Chevrolet Malibu LTZ as
 Conclusion: Functional without frills.
 
 Translated with DeepL.com (free version)
+------------------------------------------------------------------------------------------------------------------------
+![Folie1](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/244e6568-bedc-4b53-aa78-e4d7e0be40e1)
 
--------------------------
-![Folie1](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/6327e98d-59af-4dac-ac79-2a0bc9985d2f)
+![Folie2](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/6e6dca64-949d-4929-8094-25953affafc2)
 
-![Folie2](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/8d428e7a-a707-4c3b-920f-50d1dc3ab759)
+![Folie3](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/d94cd5e1-da9a-4a22-a758-74f198f82cb6)
 
-![Folie3](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/15daa692-958c-427a-9b9a-5cd9103cf59f)
+![Folie4](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/c3612a17-d0e4-4b42-8228-d8c205722535)
 
-![Folie4](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/62c2c1aa-6b03-4b1b-82ba-c5b36218d3ca)
+![Folie5](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/756ba066-3a5d-47af-a691-1acb3b4b78f6)
 
-![Folie5](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/a71d593b-c719-4895-96c3-9774c359f7d4)
+![Folie6](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/c77924c5-ed11-42ca-8a03-a4e3348b58a7)
 
-![Folie6](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/a1b5f32f-0415-4ca0-9e94-967659205fc2)
+![Folie7](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/b3ca9e37-afa0-4524-ad08-7aa28d771171)
 
-![Folie6](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/56a10de7-5860-43fc-a449-6b918a47dc48)
+![Folie8](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/ac9e151a-2d16-40ae-9e16-a648ed1f3c96
 
-![Folie7](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/5df9dfc0-3fab-4156-8c8d-123730ceb9e1)
-
-![Folie8](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/fe1085ba-9d06-4eb3-b3e6-863cdcbf296a)
-
-![Folie9](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/f99be498-8b1e-4c2f-b109-3b8668011831)
-
+![Folie9](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/812dac52-ac3d-4a3a-bfdc-e698f9615614)
