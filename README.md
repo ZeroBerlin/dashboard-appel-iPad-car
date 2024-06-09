@@ -34,6 +34,10 @@ Translated with DeepL.com (free version)
 
 ![Folie6](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/a1b5f32f-0415-4ca0-9e94-967659205fc2)
 
+![Folie6](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/56a10de7-5860-43fc-a449-6b918a47dc48)
+
+![Folie7](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/5df9dfc0-3fab-4156-8c8d-123730ceb9e1)
+
 
 
 [New Navigation und Multimedia in old Car.pdf](https://github.com/user-attachments/files/15754384/New.Navigation.und.Multimedia.in.old.Car.pdf)
