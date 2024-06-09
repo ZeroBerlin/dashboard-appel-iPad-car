@@ -24,8 +24,6 @@ Translated with DeepL.com (free version)
 
 -------------------------
 
-![image](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/5897a4ce-105f-424e-a3f3-dc71e3deae6c)
-
 ![image](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/b3055e0f-06cd-443f-a823-535227fac26c)
 
 
