@@ -21,10 +21,15 @@ Conclusion: Functional without frills.
 
 Translated with DeepL.com (free version)
 
-
 -------------------------
+![Folie1](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/6327e98d-59af-4dac-ac79-2a0bc9985d2f)
 
-![image](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/b3055e0f-06cd-443f-a823-535227fac26c)
+![Folie2](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/8d428e7a-a707-4c3b-920f-50d1dc3ab759)
 
+![Folie3](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/15daa692-958c-427a-9b9a-5cd9103cf59f)
 
-![image](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/fc9f8125-e85e-4210-b4f9-618148a3469d)   ![image](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/3e9a74af-d53a-4c6a-ae35-11190b1f67d1)
+![Folie4](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/62c2c1aa-6b03-4b1b-82ba-c5b36218d3ca)
+
+![Folie5](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/a71d593b-c719-4895-96c3-9774c359f7d4)
+
+![Folie6](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/a1b5f32f-0415-4ca0-9e94-967659205fc2)
