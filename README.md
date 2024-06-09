@@ -20,3 +20,8 @@ Is to integrate my iPad pro 11 inch 2022 into my 2012/13 Chevrolet Malibu LTZ as
 Conclusion: Functional without frills.
 
 Translated with DeepL.com (free version)
+
+
+-------------------------
+
+![image](https://github.com/ZeroBerlin/dashboard-appel-iPad-car/assets/61627006/5897a4ce-105f-424e-a3f3-dc71e3deae6c)
