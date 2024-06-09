@@ -36,8 +36,4 @@ Translated with DeepL.com (free version)
 
 
 
-[New Navigation und Multimedia in old Car.pdf](https://github.com/user-attachments/files/15754381/New.Navigation.und.Multimedia.in.old.Car.pdf)
-[New Navigation und Multimedia in old Car.pptx](https://github.com/user-attachments/files/15754382/New.Navigation.und.Multimedia.in.old.Car.pptx)
-
-
-
+[New Navigation und Multimedia in old Car.pdf](https://github.com/user-attachments/files/15754384/New.Navigation.und.Multimedia.in.old.Car.pdf)
